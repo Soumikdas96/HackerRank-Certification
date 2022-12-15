@@ -22,3 +22,9 @@
 ![download (10)](https://user-images.githubusercontent.com/91152839/206515947-6229ee35-e873-40e9-be1e-9115bca74660.png)
 
 
+[JavaScript (Intermediate) Certificate](https://www.hackerrank.com/certificates/a082de5c186b)
+
+![download (6)](https://user-images.githubusercontent.com/91152839/207912237-56fbb8ff-d048-4e85-b87e-1620f9c54f92.png)
+
+
+
